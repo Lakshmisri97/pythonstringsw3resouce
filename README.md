@@ -1,0 +1,1 @@
+# pythonstringsw3resouce
